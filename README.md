@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @DanEvils
-- 👀 I’m interested in education puropos
+- 👀 I’m interested in education purpose
 - 🌱 I’m currently learning programing
 - 💞️ I’m looking to collaborate on raspberry, Adrino and Cripto.
 - 📫 How to reach me dan_evilsizor@hotmail.com
